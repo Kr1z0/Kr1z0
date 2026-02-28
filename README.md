@@ -1,4 +1,4 @@
-![Untitled](https://github.com/user-attachments/assets/7d360d21-a09d-4146-b41c-0ceb0e017adb)
+![Untitled](https://github.com/user-attachments/assets/99ff4d34-1374-4b68-b580-9c8f1f5a7cac)
 
 
 [straw](https://krizo.straw.page/)
